@@ -1,2 +1,0 @@
-pjjanak.github.io
-=================
